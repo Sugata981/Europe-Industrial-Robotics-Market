@@ -1,4 +1,4 @@
-<img width="1920" height="1080" alt="Europe Industrial Robotics Market" src="https://github.com/user-attachments/assets/369e281b-de4e-474d-931a-1b5405d59d9f" /># Europe Industrial Robotics Market Accelerates as Automation Reshapes Manufacturing Landscape
+# Europe Industrial Robotics Market Accelerates as Automation Reshapes Manufacturing Landscape
 <img width="1920" height="1080" alt="Europe Industrial Robotics Market" src="https://github.com/user-attachments/assets/ba65591b-6db1-4065-9e04-2f5d34ea65a8" />
 
 ### Market Expansion Driven by Strong Growth Momentum
